@@ -5,7 +5,7 @@ Clariontrust is a scam, plain and simple based on personal experience
 
 They bait you in with a few weeks of profits and promises and rainbows... and then destiny!!!
 
-Hello, I am writing this quick and brief article to warm people of the investment site Clariontrust (aka Clarion Trust) as well as the person, Charlotta Louise on Facebook who introduced it to me and then subsequently bullied me into taking down true and honest review.
+Hello, I am writing this quick and brief article to warn people of the investment site Clariontrust (aka Clarion Trust) as well as the person, Charlotta Louise on Facebook who introduced it to me and then subsequently bullied me into taking down true and honest review.
 
 And to be clear, this is not clickbait as I am not promoting anything else or trying to gain notoriety, it is purely to protect others from making the same mistake that I did and not lose money.
 
